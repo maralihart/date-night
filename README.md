@@ -11,3 +11,52 @@ When using this website, Omar and Mara must be able to:
 
 If time allows, Omar and Mara would enjoy:
 * Adding a photo to mark the completion of that date
+
+## Date Ideas
+This is not a complete list, but a brainstorming guide. Date ideas can also have multiple tags/categories.
+
+### Days Out
+* Stand up paddleboarding
+* Kayaking
+* Picnic
+* Horseback riding
+* Candle making
+* Fruit/flower picking
+* Ceramic painting
+* Making pottery
+* Coffee + pastries
+* Watch the sunrise at a lake
+* Get icecream at the beach
+### Nights Out
+* Dinner + movie
+* Dress up for fancy restaurant
+* Rooftop dining
+* Bowling
+* Takeout and overlook
+* Rollerskating
+* Iceskating
+### Staying In
+* Puzzle
+* Watch a movie online
+* Go on a walk outside
+* Pillow fort
+### Day Trips
+* Vancouver
+* Portland
+* Mt. Rainier
+* Mt. Olympia
+* North Cascades
+* Tourist In Town (be a tourist in your own city)
+### Weekend Trips
+* Zion
+* Yellowstone
+* Grand Canyon
+* Redwoods
+### Week Trips
+* New York City
+* Toronto
+
+### Additional Tags to Filter
+* Length of date
+* Sunny weather needed?
+* Warm weather needed?
